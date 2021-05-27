@@ -1,2 +1,1 @@
-# chupapi-munanio
-chupapi
+why KuroHack owns u and all
